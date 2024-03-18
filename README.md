@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Computer Science (5º)
 - 📫 How to reach me debbycrisfig21@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I loved work with computers, but in my home i'dont use tecnologys.
+- ⚡ Fun fact: I love work with computers, but in home i'dont use tecnologys.
 
 <!---
 debbycris21/debbycris21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
