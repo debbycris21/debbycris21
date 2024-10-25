@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cyber Security
 - 🌱 I’m currently learning Computer Science (6º)
 - 📫 How to reach me debbycrisfig21@gmail.com
-- 😄 Pronouns: She/Dela
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love work with computers, but in home i'dont use tecnologys.
 
 <!---
