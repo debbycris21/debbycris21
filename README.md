@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Débora Cristina
 - 👀 I’m interested in Cyber Security
-- 🌱 I’m currently learning Computer Science (6º)
+- 🌱 I’m currently learning Computer Science (7º)
 - 📫 How to reach me debbycrisfig21@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love work with computers, but in home i'dont use tecnologys.
