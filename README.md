@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Olá, sou a Débora Cristina<br>👀 Futura Analista de Segurança Cibernética<br>🌱 Atualmente estou estudando Ciência da Computação (7º)<br>📫 Como entrar em contato comigo debbycrisfig21@gmail.com<br>😄 Pronomes: Ela/Dela<br>⚡ Curiosidade: adoro trabalhar com computadores e amo ouvir música
+👋 Olá, sou a Débora Cristina<br>👀 Futura Analista de Segurança Cibernética<br>🌱 Atualmente estou estudando Ciência da Computação (8º)<br>📫 Como entrar em contato comigo debbycrisfig21@gmail.com<br>😄 Pronomes: Ela/Dela<br>⚡ Curiosidade: adoro trabalhar com computadores e amo ouvir música
 
 
 ## 🌐 Socials:
